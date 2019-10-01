@@ -1,0 +1,1 @@
+One of the ideas that i was thinking of from this could be theme park rides for example.
